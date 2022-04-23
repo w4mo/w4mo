@@ -7,7 +7,7 @@
 </div>  
 
 
-- 🔭 I’m currently working on Beast Village  
+- </> I’m currently working on Beast Village  
 
 
 - ⚡ Success Fact I believe in discipline, smart work, stability triangle for success  
