@@ -7,7 +7,7 @@
 </div>  
 
 
-- </> I’m currently working on Beast Village  
+- </> I’m currently working on Wallids 
 
 
 - ⚡ Success Fact I believe in discipline, smart work, stability triangle for success  
